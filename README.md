@@ -9,6 +9,8 @@
 📫 You can reach me through the following channels:
 
 Email: kielangelo.mingote@icloud.com
+
 LinkedIn: https://tinyurl.com/2tcjuuwv
+
 Instagram: kyo.meee
 
