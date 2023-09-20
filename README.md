@@ -12,5 +12,5 @@ Email: kielangelo.mingote@icloud.com
 
 LinkedIn: https://tinyurl.com/2tcjuuwv
 
-Instagram: kyo.meee
+Instagram: https://www.instagram.com/kyo.meee/
 
